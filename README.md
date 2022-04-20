@@ -1,5 +1,6 @@
-### Hi there 👋
+### Welcome! 👋
 
+I stand with Ukraine🇺🇦. Let the flag of independence and freedom lead Ukraine people to the path toward victory and peace!
 <!--
 **starryloki/starryloki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
